@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AashnaAnn
 - 👀 I’m interested in Cybersecurity and coding
 - 🌱 I’m currently learning MCA
-- 📫 How to reach me via mail aashnaannKuriakose@gmail.com
+- 📫 How to reach me via mail aashnaannkuriakose@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I switched my major after finding that it was not my piece of cake
 
